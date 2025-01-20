@@ -14,17 +14,7 @@ AND/OR chopped up Scotch Bonnet pepper (this is much hotter than jalapeno but if
 1/2 tsp chili powder  
 1/4 tsp ground cumin  
 1/2 tsp granulated sugar (optional)  
-Salt (? needed more)  
+? Salt (needed more)  
+? black pepper
 1/3 cup fresh cilantro (since my roommate doesn't like cilantro, I omit this and just add some dried cilantro on my own meals)  
   
-
-## Pico de Gallo variations
-
-3 medium tomatoes chopped  
-1 jalapeno seeded and minced  
-1 shallot minced (you can also use red or yellow onion instead)  
-1 garlic clove minced  
-½ Tbsp lime juice  
-1 Tbsp cilantro chopped (optional)  
-salt and ground black pepper to taste  
-
