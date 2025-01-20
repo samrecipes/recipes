@@ -5,11 +5,11 @@
 carrot, chopped  
 2 - 3 garlic cloves, finely chopped  
 1/2 teaspoon hot red pepper flakes (Optional. I've been reducing these in my diet because there's a lot of useless seeds in most pepper flakes, which have natural toxins and they don't actually contain any heat.)  
-1 can San Marzano tomatoes including juices (crush them if not already crushed)  
-1 cup water (pour it into the can so you get tomatoey water).  
+1 can San Marzano tomatoes including juices (crush them if not already crushed) (I've been buying these from my local Target)  
+1 cup water (pour it into the can so you get tomatoey water)  
 1 can tomato paste  
 1/4 cup petite diced tomato  
-a few spoons of fire roasted red bell peppers (the best ones being Peruvian, you can get large cans of them from Amazon: Roland Foods Fire-Roasted Red Pepper Strips)  
+a few spoons of roasted red bell peppers (the best ones being Turkish or Peruvian--you can get large cans of Peruvian peppers from Amazon: Roland Foods Fire-Roasted Red Pepper Strips)  
 1/2 cup white wine  
 2 teaspoons dried oregano   
 basil (only if fresh). If not fresh then don't add until after cooking.  
