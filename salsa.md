@@ -1,11 +1,11 @@
 # Salsa
 
-1 1/4 lbs ripe Roma tomatoes (about 5 - 6)
-1 (14.5 oz) can petite diced tomatoes
-2 green onions (ends trimmed)
-1/3 cup chopped onion (about 1/4 of a medium)
-? minced shallot
-
+1 1/4 lbs ripe Roma tomatoes (about 5 - 6)  
+1 (14.5 oz) can petite diced tomatoes  
+2 green onions (ends trimmed)  
+1/3 cup chopped onion (about 1/4 of a medium)  
+? minced shallot  
+  
 1 (probably more if not using other peppers?) jalapeno pepper (seeded and chopped)
 AND/OR chopped up Scotch Bonnet pepper (this is much hotter than jalapeno but if you only use one it's not super hot overall)
 
