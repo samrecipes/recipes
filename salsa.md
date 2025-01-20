@@ -1,6 +1,6 @@
 # Salsa
 
-1 1/4 lbs ripe Roma tomatoes (about 5 - 6)  
+2 or 3 Roma tomatoes
 1 (14.5 oz) can petite diced tomatoes  
 2 green onions (ends trimmed)  
 1/3 cup chopped onion (about 1/4 of a medium)  
