@@ -10,4 +10,4 @@ Unless otherwise specified, all my cooking with onions and garlic follows this p
 - Add in the garlic after the onions have had at least a few minutes.
 - Don't burn the garlic--after a couple minutes (at most) add the next batch of ingredients.
 
-I don't actually measure out oil, I just throw it in there.
+I don't actually measure out the cooking oils, I just throw 'em in there.
