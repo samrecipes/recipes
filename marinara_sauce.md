@@ -23,16 +23,16 @@ In large pan (note you don't want a "sauce pan" or a pot, you want something wid
   
 Sauté onions & carrots 10 minutes or till onions are translucent.  
   
-Add in garlic & red pepper flakes.  
+Add in garlic (and hot pepper if any).
   
 Cook 3 minutes (don't burn the garlic).  
   
 Add everything else including the water--we need it extra watery because that will evaporate as it cooks.  
   
 Simmer at least 1 hour (you can do less but it will be more chunky).  
-Leave cover half on so the water doesn't evaporate too fast.  
+Leave cover half on so the water doesn't evaporate too fast (cover is optional).
 Add more water if it reduces too much.  
   
 Remove bay leaf.  
   
-Add some dried basil (optional).  
+Add some dried basil (optional).
