@@ -61,4 +61,4 @@ Add SAUCE ingredients.
   
 Egg: Push the stuff to the side of the pan and add remaining 1/2 tbsp oil. Break the egg into the oil, use a spatula to scramble the egg, breaking it up into small bits (or you can cook egg in a separate pan and then chop it up and throw it in the bigger pan).  
   
-Add the scallions or chives OR Thai Basil  
+Add the green onion and/or Thai Basil. You can mix some of the green onion in but leave some just resting on the top.
