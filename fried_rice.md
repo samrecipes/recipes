@@ -10,6 +10,7 @@
     - 1 carrot, peeled and cut into slices or dice (pickled carrots work too)
     - 2-4 cloves garlic, minced (I like to do super-thin slices like they do in the movie Goodfellas).  
     - fresh basil leaves (Optional. Even better if it's Thai basil.)
+    - bell peppers, chopped (optional)
   
 ## SAUCE  
 	- 1 tbsp white wine
@@ -28,26 +29,27 @@
 ## LATER VEGETABLES  
     - 1-2 Thai hot chili peppers chopped up
     - frozen peas (the best are Bird's Eye Baby Sweet Peas, not to be confused with the previously mentioned Bird's Eye chili pepper)
-    - alt vegetables: tomatoes and peppers  
+    - alt vegetables: tomatoes
     - alt vegetables: broccoli
   
 ## OTHER STUFF
     - 1 egg 
     - 2 green onions (aka scallions), thinly sliced (or dried chives but won't be as good)
   
-=====================================================  
+# Cooking  
   
 If doing chicken: Marinate the chicken with 1/2 teaspoon of five spice powder(?), white pepper powder, a tablespoon of soy sauce and salt for 10 minutes (optional).
   
-Sauté:  
-	- 1/2 tbsp oil  
-	- Onions/shallots first. Carrots too.  
+Sauté:
+    onions/shallots
+    carrots
+    bell peppers
       
 Deglaze as needed with a bit of white wine throughout cooking.      
       
 After at least five minutes…
       
-	- 1/2 tbsp oil  
+	- Add more oil if needed
 	- Add garlic.  
 	- Add AROMATICS.  
       
