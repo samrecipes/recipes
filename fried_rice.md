@@ -31,7 +31,7 @@
     alt vegetables: broccoli
   
 ## OTHER STUFF
-    1 egg (maybe 2?)  
+    1 egg 
     2 green onions (aka scallions), thinly sliced (or dried chives but won't be as good)
   
 =====================================================  
