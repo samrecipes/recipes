@@ -12,41 +12,44 @@
     - fresh basil leaves (Optional. Even better if it's Thai basil.)
   
 ## SAUCE  
-	1 tbsp white wine
-	a dash of fish sauce (or maybe oyster sauce if there's broccoli in this)  
-	1 teaspoon soy sauce (or one packet from takeout)  
-	1 teaspoon sesame oil  
-	1/4 tsp white pepper
+	- 1 tbsp white wine
+	- a dash of fish sauce (or maybe oyster sauce if there's broccoli in this)  
+	- 1 teaspoon soy sauce (or one packet from takeout)  
+	- 1 teaspoon sesame oil  
+	- 1/4 tsp white pepper
 	  
 ## AROMATICS  
-    1/8 - 1/2 teaspoon Bird's Eye chili pepper powder (Sonoran Spice Company based in Arizona makes a really good one, and it can be ordered on Amazon). Use less depending on how many fresh hot chiles you add. 
-	1/4 teaspoon SHICHIMI TOGARASHI (they have this at HMart)  
-    1/2 teaspoon Vegeta (This is a spice mix from Croatia. I recommend the tin you can order from Amazon. You want the kind that has MSG in it.)  
-    1/4 teaspoon salt (if you used Vegeta you probably don't need any extra salt)  
-	1/8 teaspoon of Chinese five spice (optional, can be a bit too much depending on what other stuff you've got in here)          
+    - 1/8 - 1/2 teaspoon Bird's Eye chili pepper powder (Sonoran Spice Company based in Arizona makes a really good one, and it can be ordered on Amazon). Use less depending on how many fresh hot chiles you add. 
+	- 1/4 teaspoon SHICHIMI TOGARASHI (they have this at HMart)  
+    - 1/2 teaspoon Vegeta (This is a spice mix from Croatia. I recommend the tin you can order from Amazon. You want the kind that has MSG in it.)  
+    - 1/4 teaspoon salt (if you used Vegeta you probably don't need any extra salt)  
+	- 1/8 teaspoon of Chinese five spice (optional, can be a bit too much depending on what other stuff you've got in here)          
   
 ## LATER VEGETABLES  
-    frozen peas (the best are Bird's Eye Baby Sweet Peas, not to be confused with the previously mentioned Bird's Eye chili pepper)  
-    alt vegetables: tomatoes and peppers  
-    alt vegetables: broccoli
+    - 1-2 Thai hot chili peppers chopped up
+    - frozen peas (the best are Bird's Eye Baby Sweet Peas, not to be confused with the previously mentioned Bird's Eye chili pepper)
+    - alt vegetables: tomatoes and peppers  
+    - alt vegetables: broccoli
   
 ## OTHER STUFF
-    1 egg 
-    2 green onions (aka scallions), thinly sliced (or dried chives but won't be as good)
+    - 1 egg 
+    - 2 green onions (aka scallions), thinly sliced (or dried chives but won't be as good)
   
 =====================================================  
   
 If doing chicken: Marinate the chicken with 1/2 teaspoon of five spice powder(?), white pepper powder, a tablespoon of soy sauce and salt for 10 minutes (optional).
   
 Sauté:  
-	1/2 tbsp oil  
-	Onions/shallots first. Carrots too.  
+	- 1/2 tbsp oil  
+	- Onions/shallots first. Carrots too.  
+      
+Deglaze as needed with a bit of white wine throughout cooking.      
       
 After at least five minutes…
       
-	1/2 tbsp oil  
-	Add garlic.  
-	Add AROMATICS.  
+	- 1/2 tbsp oil  
+	- Add garlic.  
+	- Add AROMATICS.  
       
 After a few minutes…
 
