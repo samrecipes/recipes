@@ -2,14 +2,14 @@
    
 ## MAIN INGREDIENTS   
 
-- 2 Minute Instant Jasmine Rice cups (8.8 oz total) and/or left-over takeout Chinese - food rice or cooked orzo
-- cooked chicken or salmon  
-- 2 tablespoons coconut oil  
-- 1 small onion or a few shallots, finely chopped
-    - One combo that works well is some chunky chopped white onion and chopped parts of the bulb part of green onions (and then after cooking you can add in the chopped green stalks of the green onions).
-- 1 carrot, peeled and cut into slices or dice (pickled carrots work too)
-- 2-4 cloves garlic, minced (I like to do super-thin slices like they do in the movie Goodfellas).  
-- fresh basil leaves (Optional. Even better if it's Thai basil.)
+    - 2 Minute Instant Jasmine Rice cups (8.8 oz total) and/or left-over takeout Chinese food rice (or cooked orzo)
+    - cooked chicken or salmon  
+    - 2 tablespoons coconut oil  
+    - 1 small onion or a few shallots, finely chopped
+        - One combo that works well is some chunky chopped white onion and chopped parts of the bulb part of green onions (and then after cooking you can add in the chopped green stalks of the green onions).
+    - 1 carrot, peeled and cut into slices or dice (pickled carrots work too)
+    - 2-4 cloves garlic, minced (I like to do super-thin slices like they do in the movie Goodfellas).  
+    - fresh basil leaves (Optional. Even better if it's Thai basil.)
   
 ## SAUCE  
 	1 tbsp white wine
