@@ -4,7 +4,7 @@
 
     - 2 Minute Instant Jasmine Rice cups (8.8 oz total) and/or left-over takeout Chinese food rice (or cooked orzo)
     - cooked chicken or salmon  
-    - 2 tablespoons coconut oil  
+    - ~2 tablespoons coconut oil and/or extra virgin olive oil
     - 1 small onion or a few shallots, finely chopped
         - One combo that works well is some chunky chopped white onion and chopped parts of the bulb part of green onions (and then after cooking you can add in the chopped green stalks of the green onions).
     - 1 carrot, peeled and cut into slices or dice (pickled carrots work too)
@@ -62,6 +62,6 @@ Add rice/orza.
   
 Add SAUCE ingredients.  
   
-Egg: Push the stuff to the side of the pan and add remaining 1/2 tbsp oil. Break the egg into the oil, use a spatula to scramble the egg, breaking it up into small bits (or you can cook egg in a separate pan and then chop it up and throw it in the bigger pan).  
+Egg: Push the stuff to the side of the pan and add some oil. Break the egg into the oil, use a spatula to scramble the egg, breaking it up into small bits (or you can cook egg in a separate pan and then chop it up and throw it in the bigger pan).  
   
 Add the green onion and/or Thai Basil. You can mix some of the green onion in but leave some just resting on the top.
