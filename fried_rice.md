@@ -40,14 +40,15 @@
   
 If doing chicken: Marinate the chicken with 1/2 teaspoon of five spice powder(?), white pepper powder, a tablespoon of soy sauce and salt for 10 minutes (optional).
   
-Sauté:
-    onions/shallots
-    carrots
-    bell peppers
+Sauté:  
+
+    - onions/shallots
+    - carrots
+    - bell peppers
       
 Deglaze as needed with a bit of white wine throughout cooking.      
       
-After at least five minutes…
+After at least five minutes…  
       
 	- Add more oil if needed
 	- Add garlic.  
