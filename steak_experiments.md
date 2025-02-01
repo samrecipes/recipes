@@ -1,6 +1,34 @@
 # steak experiments  
   
 - to try sometime: long-cooked beer braised steak  
+
+## Asian-inspired Steak Meal
+
+Marinade:
+    - Ponzu
+    - Olive oil
+    - Sesame oil
+    - Rice wine vinegar
+    - Ginger powder
+    - Honey
+    - Garlic cloves, chopped
+    - Chili powder
+
+Steak:
+    I used two petite sirloins. After marinating the steak, put some of the marinade in a small pot and boil to use as a sauce.
+
+Bake in oven:
+    - slices of potato
+    - brocolli (I use frozen)
+    - garlic chunks
+    - spicy Thai chili peppers (chopped)
+    - olive oil
+    - salt & pepper?
+  
+Meanwhile caramelize:
+    - white onions, chopped
+   
+Put it on a plate with onions on top of the steak, pour the sauce over everything (optional).
   
 ## beef w/ basil  
   
@@ -27,4 +55,4 @@ in pan with more coconut oil:
     cook steaks   
     For last 60 seconds of cooking add some whole fresh basil leaves.  
   
-  
+
