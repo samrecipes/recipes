@@ -5,28 +5,28 @@
 ## Asian-inspired Steak Meal
 
 Marinade: 
-    - Ponzu 
-    - Olive oil 
-    - Sesame oil 
-    - Rice wine vinegar 
-    - Ginger powder 
-    - Honey 
-    - Garlic cloves, chopped 
-    - Chili powder 
+    - Ponzu  
+    - Olive oil  
+    - Sesame oil  
+    - Rice wine vinegar  
+    - Ginger powder  
+    - Honey  
+    - Garlic cloves, chopped  
+    - Chili powder  
 
-Steak: 
+Steak:  
     I used two petite sirloins. After marinating the steak, put some of the marinade in a small pot and boil to use as a sauce.
 
-Bake in oven: 
-    - potato, russet, sliced into disks 
-    - broccoli (I use frozen) 
-    - garlic chunks 
-    - spicy Thai chili peppers (chopped) 
-    - olive oil 
-    - salt & pepper? 
+Bake in oven:  
+    - potato, russet, sliced into disks  
+    - broccoli (I use frozen)  
+    - garlic chunks  
+    - spicy Thai chili peppers (chopped)  
+    - olive oil  
+    - salt & pepper?  
   
-Meanwhile caramelize: 
-    - white onions, chopped 
+Meanwhile caramelize:  
+    - white onions, chopped  
    
 Put it on a plate with onions on top of the steak, pour the sauce over everything (optional).
   
