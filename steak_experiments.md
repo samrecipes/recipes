@@ -4,7 +4,7 @@
 
 ## Asian-inspired Steak Meal
 
-Marinade: 
+Marinade:  
     - Ponzu  
     - Olive oil  
     - Sesame oil  
@@ -28,7 +28,9 @@ Bake in oven:
 Meanwhile caramelize:  
     - white onions, chopped  
    
-Put it on a plate with onions on top of the steak, pour the sauce over everything (optional).
+Pan fry the steak.   
+   
+Put it on a plate: onions on top of the steak, pour the sauce over everything (optional).
   
 ## beef w/ basil  
   
