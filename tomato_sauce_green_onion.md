@@ -6,7 +6,7 @@
     - 1-2 cloves garlic  
     - 1 can (14.5 oz) petite diced tomatoes  
     - garlic powder  
-    - oregeno (optional)  
+    - oregano (optional)  
     - basil (optional)  
     - coconut oil (refined)  
     - white wine  
