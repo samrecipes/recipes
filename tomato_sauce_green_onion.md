@@ -1,7 +1,7 @@
 # Tomato Sauce with Green Onion  
     
 ## INGREDIENTS    
-    - 1-2 green onions chopped (remove roots and bad ends first; use the white bulb part not just the green stalks)  
+    - 1-2 green onions chopped (remove roots and bad ends first; use both the white bulb parts and the green stalks)  
     - sliced bell pepper (about 1/3 of a seeded pepper)  
     - 1-2 cloves garlic  
     - 1 can (14.5 oz) petite diced tomatoes  
