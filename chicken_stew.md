@@ -48,11 +48,11 @@ Batch 4:
   
 Soak potatoes (and celery if any) in salt water.  
 
-Seed and toast the ancho pepper. Mince the pepper.  
+Seed and toast the ancho pepper.
   
 Cook Batch 1 for a few minutes.  
 
-Add Batch 2, cook for 5 minutes.  
+Cut up the toasted Ancho chile using scissors into the pan. Add rest of Batch 2. Cook for 5 minutes.  
 
 Add Batch 3, cook for 5-15 minutes depending on desired tomato consistency.  
 
