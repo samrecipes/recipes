@@ -3,6 +3,7 @@
 ## INGREDIENTS    
   
 Batch 1:    
+
     - 2 teaspoons olive oil    
     - 1/2 large onion diced  
         - alternative: mix whatever onions you have, green onion is ok. shallots.
@@ -10,11 +11,13 @@ Batch 1:
     - fresh bell peppers, sliced (optional)   
       
 Batch 2:    
+
     - 2 - 3 cloves garlic, minced    
     - 1 - 2 celery stalks, diced (optional) (soak beforehand in salt water)  
     - ancho pepper(s)  
     
-Batch 3:    
+Batch 3:
+    
     - 1 cup white wine    
     - 1 cup chicken broth    
     - water (add as needed for reduction)    
@@ -27,7 +30,8 @@ Batch 3:
     - 1 bay leaf    
     - thyme    
   
-Batch 4:    
+Batch 4:   
+ 
     - 1 cup chicken broth (another one)    
     - butter (optional)    
     - 1/2 lb to 2/3 lb - pre-cooked chicken chunks    
