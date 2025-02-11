@@ -4,9 +4,9 @@
   
 Batch 1:    
 
-    - 2 teaspoons olive oil    
+    - 2 teaspoons olive oil (or refined coconut oil)  
     - 1/2 large onion diced  
-        - alternative: mix whatever onions you have, green onion is ok. shallots.
+        - alternative: mix whatever onions you have on hand -- green onion, shallots, etc.
     - 2 - 4 carrots chopped    
     - fresh bell peppers, sliced (optional)   
       
